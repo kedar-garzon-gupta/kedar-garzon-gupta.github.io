@@ -14,4 +14,4 @@ I am a Ph.D. student at Columbia University (2024—), advised by Nikolaus Krieg
 
 ## Publications
 
-- Refer to my Google Scholar.
+- Up-to-date list available on Google Scholar
